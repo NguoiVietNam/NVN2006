@@ -1,2 +1,0 @@
-# NVN2006
-NguoiVietNam2006
